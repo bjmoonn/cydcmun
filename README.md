@@ -6,4 +6,5 @@ This year, I took the role as the USG of Design and Media but unfortunately due 
 Credits to:
 
 Lawrence Tan - @lawtancool on IG
+<br>
 Jae Wu Chun - @jaewuchun on IG
